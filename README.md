@@ -1,2 +1,2 @@
 # sentie
-sentie.io is the best
+https://www.sentie.io is the best
